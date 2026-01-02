@@ -12,9 +12,9 @@
                       dont ask me to join a party or rp/regi.
                       i will block if unconfortable.
                       c + h only if fandom.
-
                 safe server only - usually next to the dc/dispatch area by the bakery, sometimes docks.
 
+                    fandoms: hannibal, fallout, horror, black mirror, house md, IT.
 
 
 
