@@ -12,7 +12,7 @@
                               - I let you know me. See me. I gave you a rare gift, but you didn't want it.
                                      
 
-                              hi! im a fellow fannibal/vaultie. you can adress me as ellxe, i use she/her prounouns.
+                        hi! im a fellow fannibal/vaultie. you can adress me as ellxe, i use she/her prounouns.
                               
                               whisper to interact, im usually offtab or afk.
                               do not cover and do not strongly copy my ponies.
