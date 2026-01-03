@@ -20,7 +20,7 @@
                                      
 
                                     hi! im ellxe, i use she/her prounouns.
-                              
+            ╰┈➤               
                   whisper to interact, im usually offtab or afk.
                   do not cover and do not strongly copy my ponies.
                   dont ask me to join a party or rp/regi.
