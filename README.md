@@ -22,10 +22,10 @@
                      -  safe server only - usually next to the dc/dispatch area by the bakery, 
                      sometimes docks.
               
-                              
+                                       
                                       
                                   fandoms: hannibal, fallout, horror, black mirror, house md, IT.
-                    
+                                  DNI: forsaken, helluva/hazbin, tadc. tpot/object shows.
                            
                               
 
