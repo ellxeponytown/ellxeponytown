@@ -12,11 +12,12 @@
                               - I let you know me. See me. I gave you a rare gift, but you didn't want it.
                                      
 
-
+                              
                               whisper to interact, im usually offtab or afk.
+                              
                               do not cover and do not strongly copy my ponies.
                               dont ask me to join a party or rp/regi.
-                              i will block if uncomfortable.
+                              iwc. i will block if uncomfortable.
                               c + h only if fandom.
                      -  safe server only - usually next to the dc/dispatch area by the bakery, 
                      sometimes docks.
