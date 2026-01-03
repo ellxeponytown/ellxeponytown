@@ -22,7 +22,7 @@
                      -  safe server only - usually next to the dc/dispatch area by the bakery, 
                      sometimes docks.
               
-                                       ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=chesapeakeripper)
+  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=chesapeakeripper)
                                       
                                   fandoms: hannibal, fallout, horror, black mirror, house md, IT.
                                   DNI: forsaken, helluva/hazbin, tadc. tpot/object shows.
