@@ -9,7 +9,7 @@
 
 
                              
-                  - I let you know me. See me. I gave you a rare gift, but you didn't want it.
+              - I let you know me. See me. I gave you a rare gift, but you didn't want it.
                                      
 
                                     hi! im ellxe, i use she/her prounouns.
@@ -29,8 +29,8 @@
 
 
 
-                        fandoms: hannibal, fallout, horror, black mirror, house md, IT.
-                        DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
+                  fandoms: hannibal, fallout, horror, black mirror, house md, IT.
+                  DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
                            
                               
 
