@@ -44,7 +44,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=chesapeakeripper&color=800000&label=Victims)
 
 
-<img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" />
+
 
 
               fandoms: hannibal, fallout, horror, black mirror, house md, IT.
@@ -52,6 +52,12 @@
               DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
                            
                               
+<img width="99" height="57" alt="411244552-97af13a1-5919-458c-942a-75282adfae80" src="https://github.com/user-attachments/assets/4d941859-ee9e-4024-91b4-4a35b1c736f2" /><img width="99" height="56" alt="411251550-1bf6dcae-0a4b-43f5-ac9a-cc6314ac4aed" src="https://github.com/user-attachments/assets/e935c603-13d1-42bb-9b5d-1d3613a1069d" /><img width="99" height="56" alt="516928254-3b34ca2b-4370-4da0-b2b3-9570c50a1ec9" src="https://github.com/user-attachments/assets/c46a90e4-8c92-4949-817f-e2ac02838173" /><img width="101" height="57" alt="tumblr-inline-rbv47rke-M91vefsve-500" src="https://github.com/user-attachments/assets/95b10d0c-82b2-4622-b5ff-1715ed8d850d" />![06khx4](https://github.com/user-attachments/assets/500f149c-33b5-45f8-bb18-c5b1652ad6e2)![Tumblr-l-244026611336024](https://github.com/user-attachments/assets/9c315e36-68bb-49ce-bf9e-044bf10e8a71)
+
+
+
+
+
 
   
 
