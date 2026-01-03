@@ -44,6 +44,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=chesapeakeripper&color=800000&label=Victims)
 
 
+<img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/594dde00-8c75-4435-9c8d-cfed24968297" />
 
 
               fandoms: hannibal, fallout, horror, black mirror, house md, IT.
