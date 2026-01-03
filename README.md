@@ -4,22 +4,22 @@
 
                              
 
-                                                   Welcome     
+                                              Welcome     
 
 
-                      whisper to interact, im usually offtab or afk.
-                      do not cover and do not strongly copy my ponies.
-                      dont ask me to join a party or rp/regi.
-                      i will block if uncomfortable.
-                      c + h only if fandom.
-              -  safe server only - usually next to the dc/dispatch area by the bakery, sometimes docks.
+                whisper to interact, im usually offtab or afk.
+                do not cover and do not strongly copy my ponies.
+                dont ask me to join a party or rp/regi.
+                i will block if uncomfortable.
+                c + h only if fandom.
+        -  safe server only - usually next to the dc/dispatch area by the bakery, sometimes docks.
               
-                                      ꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰
+                              ꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰
                                       
-                    fandoms: hannibal, fallout, horror, black mirror, house md, IT.
+              fandoms: hannibal, fallout, horror, black mirror, house md, IT.
                     
                            
-                                    ꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰
+                              ꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰
 
 ![hypblinkie](https://github.com/user-attachments/assets/3045a82c-32c7-43c6-af0b-7c9414627809)
 ![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/ab3db223-2c3d-4758-8abc-6a4ba997cef2)
