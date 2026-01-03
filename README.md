@@ -10,7 +10,7 @@
 
                              
              
- ![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/ae28ff7a-0960-498d-aeac-f02316aeedce)-  I let you know me. See me. I gave you a rare gift, but you didn't want it.![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/76920d76-9ff9-4db3-91d0-4c0b88ccad73)
+ ![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/ae28ff7a-0960-498d-aeac-f02316aeedce)<span style="color: 800000"> - I let you know me. See me. I gave you a rare gift, but you didn't want it. </span>.![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/76920d76-9ff9-4db3-91d0-4c0b88ccad73)
 
 
 
